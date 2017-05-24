@@ -12,3 +12,21 @@
 
 **circumnavigate**
 >to sail all the way around something, such as an island, or the world
+
+**map**
+>a plan of an area that shows the positions of things
+
+**compass**
+>a piece of equipment for finding which way to go
+
+**satnav**
+>a short way to say satellite navigation: Technology that shows you where you are and gives directions
+
+**drinking water**
+>water that is safe to drink
+
+**waterproof jacket**
+>a coat that keeps you dry
+
+**captain's hat**
+>a special hat that only the captain of a ship wears
