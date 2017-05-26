@@ -30,3 +30,18 @@
 
 **captain's hat**
 >a special hat that only the captain of a ship wears
+
+**scruffy**
+>not neat or clean
+
+**casual**
+>informal and comfortab
+
+**smart**
+>neat and stylish
+
+**formal**
+>serious, important clothes for special events, for example, weddings
+
+**fashionable**
+>new and popular
