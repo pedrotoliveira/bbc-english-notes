@@ -126,3 +126,27 @@
 
 **disgusting**
 >so horrible that you feel sick. There's a disgusting smell in the bathroom - open a window, quickly!
+
+**trapped**
+>unable to move or escape from a place / stopped from leaving a place
+
+**scratched**
+>cut or damaged the surface of something (for example, skin)
+
+**aggressive**
+>behaving in an angry and violent way
+
+**domestic**
+>if an animal is domestic, it lives with people
+
+**(to have) a screw loose**
+>(to be) a bit crazy
+
+**feral**
+>wild
+
+**kitten**
+>a baby cat
+
+**duty**
+>responsibility
