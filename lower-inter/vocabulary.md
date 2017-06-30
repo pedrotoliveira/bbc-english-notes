@@ -180,3 +180,6 @@
 
 **weather the storm**
 >survive a difficult situation
+
+**homely**
+>If something feels comfortable like your home.
