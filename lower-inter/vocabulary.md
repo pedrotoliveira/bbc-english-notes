@@ -165,3 +165,18 @@
 
 **shelter**
 >to find or stay in place where a person or thing is protected from bad weather
+
+**depression**
+>an area of low pressure that causes cold, wind and rain
+
+**gale force**
+>describes very strong wind that can cause damage
+
+**hammer down**
+>describes very heavy rain
+
+**batten down the hatches**
+>prepare for a difficult or dangerous situation
+
+**weather the storm**
+>survive a difficult situation
