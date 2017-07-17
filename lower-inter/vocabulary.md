@@ -222,3 +222,15 @@
 
 **cyclist**
 >someone who travels by bicycle
+
+**fare**
+>the money you pay to travel on a train, bus, taxi etc.
+
+**typical**
+>usual, normal
+
+**platform**
+>the place where people stand when they are waiting for a train
+
+**colleagues**
+>people who you work with
