@@ -252,3 +252,18 @@
 
 **productively**
 >successfully; usefully
+
+**go about**
+>(a sailing term) turn and sail in the opposite direction
+
+**steer**
+>control the direction of movement of a vehicle such as a boat, car or bicycle
+
+**navigate**
+>find a route across an area of land or water, often using a map
+
+**satnav**
+>short for 'satellite navigation': a piece of technology that uses satellites to find the best way to get to a place
+
+**on course**
+>going in the right direction
