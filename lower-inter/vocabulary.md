@@ -204,3 +204,21 @@
 
 **(I'll be) back in a bit**
 >(I'll) return soon
+
+**commuter**
+>someone who travels from home to work, or a place of study, and back again every day
+
+**commute**
+>the journey from home to work or a place of study
+
+**tube**
+>an informal name for the London Underground system
+
+**knackered**
+>very tired
+
+**miserable**
+>unpleasant, or causing unhappiness
+
+**cyclist**
+>someone who travels by bicycle
