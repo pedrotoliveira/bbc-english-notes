@@ -306,3 +306,9 @@
 
 **bit by bit**
 >gradually; a small amount at a time
+
+**expires**
+>officially finishes, usually after a particular date
+
+**mustn’t grumble**
+>can’t complain; not bad (said after someone asks 'How are you?')
