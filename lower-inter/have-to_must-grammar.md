@@ -1,5 +1,6 @@
 #Unit 5 - ‘Have to’ and ‘must’ (obligation)
-Meaning and use
+##Meaning and use
+
 ===============
 
 If you *have to do* something, it is necessary for you to do it. It’s a law, an obligation or a fact.
@@ -52,3 +53,20 @@ All the trains were cancelled, so we had to get a taxi.
 *Did you have to write* it all again?
 
 [Reference]: http://www.bbc.co.uk/learningenglish/english/course/lower-intermediate/unit-5/tab/grammar
+
+#You've got to read this
+
+In informal British English, we sometimes use have got to instead of have to.
+
+    * We have to change the engine oil.
+    * We’ve got to change the engine oil.
+
+And in even more informal English we sometimes don't even say the have – so it becomes just got to. You might see this in text messages and on social media, for example:
+
+    * Got to change the oil.
+
+And there’s one more way to say this: gotta. It’s the most informal of all these forms.
+
+   * Gotta change the engine oil.
+
+Play the audio to hear Finn saying these example sentences out loud. Practise by reading them aloud with him.
