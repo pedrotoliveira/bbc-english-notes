@@ -312,3 +312,15 @@
 
 **mustn’t grumble**
 >can’t complain; not bad (said after someone asks 'How are you?')
+
+**family reunion**
+>when family members and relatives get together to celebrate a special date or occasion
+
+**A&E**
+>Accident & Emergency (A&E) is a department in hospitals for patients without appointments, who need urgent help
+
+**to bang**
+>to hit
+
+**to feel dizzy**
+>to feel like your head is spinning and that you might fall
