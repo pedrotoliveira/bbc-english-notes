@@ -267,3 +267,42 @@
 
 **on course**
 >going in the right direction
+
+**turkey**
+>a large bird like a chicken, kept for its meat
+
+**gravy**
+>a thick meat sauce served with meat and vegetables
+
+**broccoli**
+>a vegetable with a green stem and a green or purple head
+
+**stuffing balls**
+>balls of stuffing: food that is cut into small pieces and put inside meat or vegetables
+
+**every single day**
+>a stronger way of saying 'every day'
+
+**overweight**
+>fat; heavier than you should be
+
+**fatty**
+>containing a lot of fat
+
+**aches and pains**
+>general body pains that aren’t serious
+
+**cheap and cheerful**
+>simple, basic and often inexpensive
+
+**short and sweet**
+>quick and simple
+
+**black and blue**
+>sore and bruised
+
+**quick and dirty**
+>short, simple and basic
+
+**bit by bit**
+>gradually; a small amount at a time
