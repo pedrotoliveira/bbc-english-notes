@@ -324,3 +324,40 @@
 
 **to feel dizzy**
 >to feel like your head is spinning and that you might fall
+
+**vegan**
+>someone who doesn't eat meat or animal products; also an adjective describing this kind of diet
+
+**poultry**
+>chicken and other birds which people eat 
+
+**anniversary**
+>date on which something happened and is remembered every year 
+
+**imagine**
+>think about something which isn't real
+
+**extensively**
+>widely
+
+**veganism**
+>the state of being vegan
+
+**minimising**
+>making as small as possible
+
+**ecological footprint**
+>the amount you affect the environment
+
+**animal rights**
+>the idea that animals have rights
+
+**inform**
+>tell
+
+**preaching**
+>speaking about your beliefs forcefully in the hope others will agree with you
+
+**actions speak louder than words**
+>a phrase that means what you do is more important than what you say, and has more influence over people
+
