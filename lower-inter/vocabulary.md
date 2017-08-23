@@ -353,11 +353,11 @@
 >the idea that animals have rights
 
 **inform**
->tell
+>to tell
 
 **preaching**
 >speaking about your beliefs forcefully in the hope others will agree with you
 
-**actions speak louder than words**
+**actions speak louder than words (Lead By Actions)** 
 >a phrase that means what you do is more important than what you say, and has more influence over people
 
