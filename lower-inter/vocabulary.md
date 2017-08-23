@@ -358,6 +358,45 @@
 **preaching**
 >speaking about your beliefs forcefully in the hope others will agree with you
 
-**actions speak louder than words (Lead By Actions)** 
+**actions speak louder than words (To Lead By Example)** 
 >a phrase that means what you do is more important than what you say, and has more influence over people
+
+**feasting**
+>eating special large meals with lots of people
+
+**the festive season**
+>the period of time that includes Christmas and New Year
+
+**overeating**
+>eating too much
+
+**consume**
+>(here) eat or drink
+
+**calories**
+>units of energy
+
+**curries**
+>hot, spicy dishes from India (and other Southeast Asian countries) with meat or vegetables
+
+**explorers**
+>people who travel to new places that nobody has been to before
+
+**burn off**
+>use fat or energy by doing exercise
+
+**average**
+>usual, normal
+
+**a short space of time**
+>a short period of time
+
+**rebalance**
+>make a situation better by changing the amount of something
+
+**cutting back**
+>using less
+
+**elsewhere**
+>in another place
 
