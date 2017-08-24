@@ -400,3 +400,17 @@
 **elsewhere**
 >in another place
 
+**supplies**
+>(here) food and other things you must have for daily living
+
+**purchase**
+>buy something
+
+**complimentary**
+>given to a customer, client or guest for free
+
+**souvenirs**
+>things you buy on a trip or holiday to help you remember your visit
+
+**cost an arm and a leg**
+>(was) very expensive
