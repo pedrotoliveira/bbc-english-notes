@@ -432,3 +432,18 @@
 
 **retired**
 >stopped working because of old age
+
+**eavesdrop**
+>secretly listen to someone else’s private conversation
+
+**during**
+>from the beginning to the end of a particular length of time or activity
+
+**No way!**
+>(here) Wow! That’s amazing!
+
+**Cheer up!**
+>this expression means: Don't be sad!
+
+**counts**
+>(here) is important
