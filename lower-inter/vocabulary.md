@@ -414,3 +414,21 @@
 
 **cost an arm and a leg**
 >(was) very expensive
+
+**achieve**
+>succeed in doing or getting something, especially after a lot of effort
+
+**hurdles**
+>frames or fences that people jump over in a running race
+
+**sailed**
+>travelled across water in a boat or ship
+
+**the South Pole**
+>the point on the earth’s surface (in Antarctica) that is further south than any other point
+
+**qualify**
+>(here) be successful in one stage of a competition so that you are allowed to move to the next stage
+
+**retired**
+>stopped working because of old age
