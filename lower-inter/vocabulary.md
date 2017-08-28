@@ -447,3 +447,12 @@
 
 **counts**
 >(here) is important
+
+**triathlon**
+>a type of race where people swim, cycle, and run over very long distances
+
+**in plaster**
+>when a broken bone is put into a hard cover to hold it in position while it gets better we say it’s ‘in plaster’
+
+**nervous**
+>worried and scared
