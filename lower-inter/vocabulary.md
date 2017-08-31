@@ -477,3 +477,22 @@
 
 **retired**
 >stopped working because of reaching a certain age
+
+**armour**
+>metal clothing that soldiers wear to protect them when they are fighting
+
+**battles**
+>fights between two armies or large groups of people
+
+**knights**
+>in the past, a soldier with a high social position who rode a horse was called a knight
+
+**adored**
+>loved and admired very much
+
+**skilled**
+>with a very high level of ability
+
+**dribblers**
+>football players who are good keeping the football next to them by kicking it lots of times while they run
+
