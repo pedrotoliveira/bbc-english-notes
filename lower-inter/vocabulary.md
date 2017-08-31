@@ -456,3 +456,24 @@
 
 **nervous**
 >worried and scared
+
+**excited**
+>very happy and full of energy because something good is happening or is going to happen
+
+**journalist**
+>person whose job is to report the news for a newspaper, magazine, radio or television programme
+
+**restarted**
+>began again
+
+**subtitles**
+>a translation or text of what people are saying on TV or a film that is shown at the bottom of the screen
+
+**actually**
+>this word is used to stress what really happened in a situation
+
+**[sic]**
+>a word written in square brackets […] after a word that you have copied to show that you know it has been spelled or used wrongly
+
+**retired**
+>stopped working because of reaching a certain age
