@@ -496,3 +496,27 @@
 **dribblers**
 >football players who are good keeping the football next to them by kicking it lots of times while they run
 
+**skill**
+>ability, especially in difficult things
+
+**skinny**
+>very thin
+
+**talent**
+>natural ability
+
+**rough diamond**
+>someone who is very good or nice, even though they don't look that way
+
+**coach**
+>someone who teaches people sports or other subjects
+
+**physically**
+>in terms of the body
+
+**recover**
+>get better after losing something (like health or energy)
+
+**fee**
+>price; amount of money you pay for something
+
