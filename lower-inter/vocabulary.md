@@ -520,3 +520,32 @@
 **fee**
 >price; amount of money you pay for something
 
+**pinched**
+>stolen
+
+**lawless**
+>not obeying laws, sometimes by using violence
+
+**bounty**
+>(here) large amount of stolen money and valuable things
+
+**sabotage**
+>doing something, for example, causing damage, to stop something else being successful
+
+**joyriders**
+>people who steal a vehicle (or boat) and drive it fast and dangerously just for pleasure
+
+**pinched**
+>stolen
+
+**scallywags**
+>people who behave badly
+
+**swashbuckling**
+>brave, exciting and often fighting
+
+**lawless**
+>not obeying laws
+
+**sabotage**
+>trying to stop something being successful
