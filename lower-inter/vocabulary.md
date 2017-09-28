@@ -152,7 +152,7 @@
 >responsibility
 
 **menacing**
->scary, threatening 
+>scary, threatening
 
 **depression**
 >(in weather) an area where the air pressure is low, bringing cold and wet weather
@@ -329,10 +329,10 @@
 >someone who doesn't eat meat or animal products; also an adjective describing this kind of diet
 
 **poultry**
->chicken and other birds which people eat 
+>chicken and other birds which people eat
 
 **anniversary**
->date on which something happened and is remembered every year 
+>date on which something happened and is remembered every year
 
 **imagine**
 >think about something which isn't real
@@ -358,7 +358,7 @@
 **preaching**
 >speaking about your beliefs forcefully in the hope others will agree with you
 
-**actions speak louder than words (To Lead By Example)** 
+**actions speak louder than words (To Lead By Example)**
 >a phrase that means what you do is more important than what you say, and has more influence over people
 
 **feasting**
@@ -549,3 +549,24 @@
 
 **sabotage**
 >trying to stop something being successful
+
+**fortunate**
+>lucky
+
+**apprehension**
+>fear that something bad will happen
+
+**luxurious**
+>extremely comfortable or elegant
+
+**shipwreck**
+>the destruction of a ship at sea by sinking or breaking up
+
+**stationary**
+>not moving, still
+
+**tragedy**
+>an event causing great suffering, destruction and distress
+
+**overcrowded**
+>when there are too many people in a space than is comfortable
