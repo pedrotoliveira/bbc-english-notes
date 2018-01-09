@@ -570,3 +570,12 @@
 
 **overcrowded**
 >when there are too many people in a space than is comfortable
+
+**iceberg**
+>a large piece of ice in the ocean
+
+**tilting**
+>leaning over to one side
+
+**lowered**
+>moved into a low position
