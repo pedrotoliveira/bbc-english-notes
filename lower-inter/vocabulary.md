@@ -579,3 +579,12 @@
 
 **lowered**
 >moved into a low position
+
+**making a lark of it**
+>(here) making fun of a situation
+
+**bosun**
+>a ship's officer in charge of equipment and the crew, also written as boatswain
+
+**jutting out**
+>sticking out
